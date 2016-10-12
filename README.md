@@ -8,3 +8,10 @@ Ghost in the Shell
 Princess Mononoke
 UP
 Heavy Metal
+--------------------------------------------------------------------------------------------------------------------------
+Jose Miranda:
+Summer Wars
+Zootopia
+Princess Mononoke
+spirited away
+Batman: The Killing Joke
